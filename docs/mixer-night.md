@@ -26,6 +26,8 @@ The best way is to get public transport or Uber. If you are taking public transp
 
 If catching a train to the venue, the nearest train station is Southern Cross Station. After arriving, complete your journey by catching an 11, 12, 48 or 109 tram down Collins Street.
 
+*You will need to enter the venue via the Queen St entrance, which leads directly to the Lower Ground Level.
+
 If you plan on driving into the city, the nearest and most affordable carpark will be [300 Flinders Street](http://www.secureparking.com.au/car-parks/australia/vic/melbourne/Melbourne%20CBD/300-flinders-street). Parking is $10 flat fee - but you must park after 4pm and leave before 6am the next day.
 
 ## Schedule
